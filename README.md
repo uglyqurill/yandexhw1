@@ -1,1 +1,0 @@
-# yandexhw1
